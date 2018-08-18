@@ -6,7 +6,7 @@ layout: default
 
 ![Jenny.jpg](https://jennystable.github.io/website/images/Jenny.jpg)
 
-Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was
+Jenny was an amazing person!.. She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was
 
 alone during a holiday, he or she was invited to her home.  Jenny could always fit one (two, three...) more around her table.  There was always room at Jenny's table.  Everyone was made to feel welcome and special.  "The more the merrier!"
 
@@ -48,16 +48,16 @@ Jenny's Table has no administrative costs; 100% of the monies raised will go dir
 
 ### Our first event:
 
-September 26, 2018 - 12:30pm  
-The Plant Group  
-117 Pond Road  
-Franklin, CT 06245  
+September 26, 2018 - 12:30pm\
+The Plant Group\
+117 Pond Road\
+Franklin, CT 06245
 
 Enjoy strolling the fields of the largest perennial grower in the northeast, The Plant Group, with lunch at 1pm.
 
 Minimum donation $75.00
 
-Click on the link below to donate.  
+Click on the link below to donate.\
 [Jenny's Table at Breast Cancer Research Foundation](https://give.bcrf.org/fundraiser/1550582)
 
 Contact us at: [ jennystable2018@gmail.com](mailto:jennystable2018@gmail.com)
