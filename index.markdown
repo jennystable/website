@@ -42,7 +42,9 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 ## About our first event:
 
-The Breast Cancer Research Foundation gives the largest percentage of their funds to research. Therefore, Jenny's Table has chosen this charity as its first fundraiser.\
+The Breast Cancer Research Foundation gives the largest percentage of their funds to research. Therefore, Jenny's Table has chosen this charity as its first fundraiser.
+
+\
 Jenny's Table has no administrative costs; 100% of the monies raised will go directly to the Breast Cancer Research Foundation.
 
 ### Our first event:
