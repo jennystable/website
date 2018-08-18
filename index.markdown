@@ -48,12 +48,12 @@ Jenny's Table has no administrative costs; 100% of the monies raised will go dir
 
 ### Our first event:
 
-September 26, 2018 - 12:30pm
-The Plant Group
-117 Pond Road
+September 26, 2018 - 12:30pm\
+The Plant Group\
+117 Pond Road\
 Franklin, CT 06245
 
-Enjoy strolling the fields of the largest perennial grower in the northeast, The Plant Group, with lunch at 1pm.  
+Enjoy strolling the fields of the largest perennial grower in the northeast, The Plant Group, with lunch at 1pm.
 
 Minimum donation $75.00
 
