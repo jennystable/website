@@ -4,7 +4,7 @@ Field name:
 layout: default
 ---
 
-![Jenny](./images/Jenny.jpg "Jenny")
+![Jenny.jpg](/uploads/Jenny.jpg)
 
 Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was
 
