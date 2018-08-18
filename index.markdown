@@ -20,25 +20,25 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 ## How Jenny’s Table works:
 
-Choose a charity (non-religious, non-political) and the minimum amount for each person to donate in order to attend the event.
+1. Choose a charity (non-religious, non-political) and the minimum amount for each person to donate in order to attend the event.
 
-Decide on you guest list, the time and the place of the event.
+2. Decide on you guest list, the time and the place of the event.
 
-You decide on the food (potluck, hostess-supplied, or donations)
+3. You decide on the food (potluck, hostess-supplied, or donations)
 
-As the hostess, you are responsible for the setup (table settings, tables, chairs, etc.)
+4. As the hostess, you are responsible for the setup (table settings, tables, chairs, etc.)
 
-ALL of the money will go directly to the charity with no funds being used for administrative costs, including food, etc.
+5. ALL of the money will go directly to the charity with no funds being used for administrative costs, including food, etc.
 
 ## What we do for you:
 
-We set up your donation page through your charity of choice.  If there is no page, we will arrange for the monies to go directly to the charity.
+1. We set up your donation page through your charity of choice.  If there is no page, we will arrange for the monies to go directly to the charity.
 
-We help you with invitations and organizing your event.
+2. We help you with invitations and organizing your event.
 
-We can help you keep track of the money raised for your event.
+3. We can help you keep track of the money raised for your event.
 
-We are here to help make your event a huge success.
+4. We are here to help make your event a huge success.
 
 ## About our first event:
 
