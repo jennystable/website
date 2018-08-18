@@ -1,5 +1,5 @@
 ---
-title: Index
+title: Home Page
 Field name: 
 layout: default
 ---
