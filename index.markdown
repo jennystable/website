@@ -6,9 +6,7 @@ layout: default
 
 ![Jenny.jpg](https://jennystable.github.io/website/images/Jenny.jpg)
 
-Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was
-
-alone during a holiday, he or she was invited to her home.  Jenny could always fit one (two, three...) more around her table.  There was always room at Jenny's table.  Everyone was made to feel welcome and special.  "The more the merrier!"
+Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was alone during a holiday, he or she was invited to her home.  Jenny could always fit one (two, three...) more around her table.  There was always room at Jenny's table.  Everyone was made to feel welcome and special.  "The more the merrier!"
 
 Jenny passed away from breast cancer in 2018.
 
