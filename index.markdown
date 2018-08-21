@@ -20,7 +20,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 1. Choose a charity (non-religious, non-political) and the minimum amount for each person to donate in order to attend the event.
 
-2. Decide on you guest list, the time and the place of the event.
+2. Decide on your guest list, the time and the place of the event.
 
 3. You decide on the food (potluck, hostess-supplied, or donations)
 
