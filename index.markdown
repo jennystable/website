@@ -53,7 +53,7 @@ Franklin, CT 06245
 
 Enjoy strolling the fields of the largest perennial grower in the northeast, The Plant Group, with lunch at 1pm.
 
-Minimum donation $75.00
+Minimum donation $50.00
 
 Click on the link below to donate.  
 [Jenny's Table at Breast Cancer Research Foundation](https://give.bcrf.org/fundraiser/1550582)
