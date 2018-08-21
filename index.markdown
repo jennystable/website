@@ -60,4 +60,7 @@ Click on the link below to donate.\
 
 Contact us at: [ jennystable2018@gmail.com](mailto:jennystable2018@gmail.com)
 
+
+### Host an event:
+
 Request event form: [Available Here](http://jennystable.org/event-request-form)
