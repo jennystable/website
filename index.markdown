@@ -55,7 +55,7 @@ Enjoy strolling the fields of the largest perennial grower in the northeast, The
 
 Minimum donation $75.00
 
-Click on the link below to donate.  
+Click on the link below to donate.\
 [Jenny's Table at Breast Cancer Research Foundation](https://give.bcrf.org/fundraiser/1550582)
 
 Contact us at: [ jennystable2018@gmail.com](mailto:jennystable2018@gmail.com)
