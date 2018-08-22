@@ -12,7 +12,7 @@ Jenny Cramer passed away from breast cancer in 2018.
 
 We wanted to remember and honor her life in a significant way.  Thus, Jenny's Table was created.
 
-Our mission is to raise money for women’s causes, by having women come together, while enjoying food and each other’s company. 
+Our mission is to raise money for women’s causes.  The idea of Jenny's Table is to gather in your home, in a restaurant, in a bar or at a venue of your choice to catch up, share stories, pass along information, or network while raising money for women's charities, many of which are underfunded. 
 
 It is our hope that you will work with us through Jenny’s Table to plan an event that supports our mission.
 
