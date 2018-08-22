@@ -12,7 +12,7 @@ Jenny passed away from breast cancer in 2018.
 
 We wanted to remember and honor her life in a significant way.  Thus, Jenny's Table was created.
 
-Our mission is to raise money for women’s causes, by having women come together, while enjoying food and each other’s company.
+Our mission is to raise money for women’s causes, by having women come together, while enjoying food and each other’s company. 
 
 It is our hope that you will work with us through Jenny’s Table to plan an event that supports our mission.
 
@@ -40,7 +40,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 ## About our first event:
 
-The Breast Cancer Research Foundation gives the largest percentage of their funds to research. Therefore, Jenny's Table has chosen this charity as its first fundraiser.
+The Breast Cancer Research Foundation gives the largest percentage of its funds to research. Jenny's Table has chosen this charity as the beneficiary of its first fundraiser.
 
 Jenny's Table has no administrative costs; 100% of the monies raised will go directly to the Breast Cancer Research Foundation.
 
