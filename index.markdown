@@ -8,7 +8,7 @@ layout: default
 
 Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was alone during a holiday, he or she was invited to her home.  Jenny could always fit one (two, three...) more around her table.  There was always room at Jenny's table.  Everyone was made to feel welcome and special.  "The more the merrier!"
 
-Jenny passed away from breast cancer in 2018.
+Jenny Cramer passed away from breast cancer in 2018.
 
 We wanted to remember and honor her life in a significant way.  Thus, Jenny's Table was created.
 
@@ -22,7 +22,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 2. Decide on your guest list, the time and the place of the event.
 
-3. You decide on the food (potluck, hostess-supplied, or donations)
+3. Decide on the food (potluck, hostess-supplied, or donations)
 
 4. As the hostess, you are responsible for the setup (table settings, tables, chairs, etc.)
 
