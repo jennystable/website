@@ -26,7 +26,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
 
-5. ***ALL*** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
+5. ****ALL**** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
 
 ## What we do for you:
 
