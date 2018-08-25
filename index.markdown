@@ -22,7 +22,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 2. Decide on your guest list, the time and the place of the event.
 
-3. Decide on the food (potluck, hostess-supplied, or donations)
+3. Decide on the food (potluck, hostess-supplied, restaurant, or donations).
 
 4. As the hostess, you are responsible for the setup (table settings, tables, chairs, etc.)
 
