@@ -8,11 +8,11 @@ layout: default
 
 Jenny was an amazing person! She was all about family, friends, and bringing people together.  She loved entertaining.  If she found out someone was alone during a holiday, he or she was invited to her home.  Jenny could always fit one (two, three...) more around her table.  There was always room at Jenny's table.  Everyone was made to feel welcome and special.  "The more the merrier!"
 
-Jenny passed away from breast cancer in 2018.
+Jenny Cramer passed away from breast cancer in 2018.
 
 We wanted to remember and honor her life in a significant way.  Thus, Jenny's Table was created.
 
-Our mission is to raise money for women’s causes, by having women come together, while enjoying food and each other’s company. 
+The idea of Jenny's Table is to gather around a table at you home, in a restaurant, at a bar or at the venue of your choice with other women to catch up, pass along information, share stories and experiences, and network , while raising money for women's causes, any of which are under funded.
 
 It is our hope that you will work with us through Jenny’s Table to plan an event that supports our mission.
 
@@ -46,20 +46,19 @@ Jenny's Table has no administrative costs; 100% of the monies raised will go dir
 
 ### Our first event:
 
-September 26, 2018 - 12:30pm  
-The Plant Group  
-117 Pond Road  
+September 26, 2018 - 12:30pm\
+The Plant Group\
+117 Pond Road\
 Franklin, CT 06245
 
 Enjoy strolling the fields of the largest perennial grower in the northeast, The Plant Group, with lunch at 1pm.
 
 Minimum donation $50.00
 
-Click on the link below to donate.  
+Click on the link below to donate.\
 <a href="https://give.bcrf.org/fundraiser/1550582" style="color: #CD5787; font-weight: bold;">Jenny's Table at Breast Cancer Research Foundation</a>
 
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
-
 
 ### Host an event:
 
