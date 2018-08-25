@@ -12,7 +12,7 @@ Jenny Cramer passed away from breast cancer in 2018.
 
 We wanted to remember and honor her life in a significant way.  Thus, Jenny's Table was created.
 
-The idea of Jenny's Table is to gather around the table at your home, in a restaurant, at a bar or at the venue of your choice with other women to catch up, pass along information, share stories and experiences, and network, while raising money for women's causes, many of which are underfunded.
+The idea of Jenny's Table is to gather around the table at your home, at a restaurant, at a bar or at the venue of your choice with other women to catch up, pass along information, share stories and experiences, and network, while raising money for women's causes, many of which are underfunded.
 
 It is our hope that you will work with us through Jenny’s Table to plan an event that supports our mission.
 
@@ -26,7 +26,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
 
-5. ALL of the donations will go directly to the charity with no funds being used for administrative costs, including food, set ups, etc.
+5. **ALL** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
 
 ## What we do for you:
 
@@ -34,7 +34,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 2. We help you with invitations and organizing your event.
 
-3. We can help you keep track of the money raised for your event.
+3. We help you keep track of the money raised for your event.
 
 4. We are here to help make your event a huge success.
 
