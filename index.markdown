@@ -22,11 +22,11 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 2. Decide on your guest list, the time and the place of the event.
 
-3. Decide on the food (potluck, hostess-supplied, restaurant, or donations).
+3. Decide on the food (potluck, hostess-supplied, restaurant, or donated food).
 
-4. As the hostess, you are responsible for the setup (table settings, tables, chairs, etc.)
+4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
 
-5. ALL of the money will go directly to the charity with no funds being used for administrative costs, including food, etc.
+5. ALL of the money will go directly to the charity with no funds being used for administrative costs, including food, set ups etc.
 
 ## What we do for you:
 
@@ -40,7 +40,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 ## About our first event:
 
-The Breast Cancer Research Foundation gives the largest percentage of its funds to research. Jenny's Table has chosen this charity as the beneficiary of its first fundraiser.
+Since the Breast Cancer Research Foundation gives the largest percentage of its funds to research, Jenny's Table chose this charity as the beneficiary of its first fundraiser.
 
 Jenny's Table has no administrative costs; 100% of the monies raised will go directly to the Breast Cancer Research Foundation.
 
