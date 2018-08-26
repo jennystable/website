@@ -60,6 +60,8 @@ Click on the link below to donate.
 
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
 
+
+
 ### Host an event:
 
 Request event form: <a href="http://jennystable.org/event-request-form" style="color: #336699; font-weight: bold;">Available Here</a>
