@@ -26,7 +26,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
 
-5. ****ALL**** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
+5. **ALL** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
 
 ## What we do for you:
 
@@ -46,16 +46,16 @@ Jenny's Table has no administrative costs; 100% of the monies raised will go dir
 
 ### Our first event:
 
-September 26, 2018 - 12:30pm\
-The Plant Group\
-117 Pond Road\
+September 26, 2018 - 12:30pm   
+The Plant Group   
+117 Pond Road   
 Franklin, CT 06245
 
 Enjoy strolling the fields of the largest perennial grower in the Northeast, The Plant Group, with lunch at 1pm.
 
 Minimum donation to attend $50.00
 
-Click on the link below to donate.\
+Click on the link below to donate.   
 <a href="https://give.bcrf.org/fundraiser/1550582" style="color: #CD5787; font-weight: bold;">Jenny's Table at Breast Cancer Research Foundation</a>
 
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
