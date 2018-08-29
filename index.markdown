@@ -58,6 +58,10 @@ Minimum donation to attend $50.00
 Click on the link below to donate.  
 <a href="https://give.bcrf.org/fundraiser/1550582" style="color: #CD5787; font-weight: bold;">Jenny's Table at Breast Cancer Research Foundation</a>
 
+If you would rather write a check you can send it to:
+The Breast Cancer Research Foundation 
+28 West 44th Street, Suite 609, New York, NY 10036
+
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
 
 
