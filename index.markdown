@@ -1,6 +1,5 @@
 ---
 title: Home Page
-published: false
 Field name: 
 layout: default
 ---
