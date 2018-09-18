@@ -18,7 +18,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 ## How Jenny’s Table works:
 
-1. Choose a charity (non-religious, non-political) and the minimum amount for each person to donate in order to attend the event.
+1. Choose a charity (non-religious, non-political) and the minimum amount for each person to donate in order to attend the event.  The charity you choose must be a 501(c)3. 
 
 2. Decide on your guest list, the time and the place of the event.
 
@@ -26,7 +26,7 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
 
-5. **ALL** of the donations will go directly to your chosen charity with no funds being used for administrative costs, including food, set ups, etc.
+5. **ALL** of the donations will go directly to your chosen 501(c)3 charity with no funds being used for administrative costs, including food, set ups, etc.
 
 ## What we do for you:
 
