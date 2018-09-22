@@ -68,9 +68,9 @@ The Breast Cancer Research Foundation
 
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>###
 
-******We need your help to achieve a goal of $50,000 this year for Jenny's Table. 
+## We need your help to achieve a goal of $50,000 this year for Jenny's Table. 
 
-You get together with friends, so why not do it at Jenny's Table!******
+You get together with friends, so why not do it at Jenny's Table!
 
 ### Host an event:
 
