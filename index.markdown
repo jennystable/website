@@ -24,19 +24,23 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 3. Decide on the food (potluck, hostess-supplied, restaurant, or donated food).
 
-4. As the hostess, you are responsible for the table settings, tables, chairs, etc.
+4.  You decide how big or intimate you want your event to be.  (It can be 5 people or 50+ people.  Whatever you decide.)
 
-5. **ALL** of the donations will go directly to your chosen 501(c)3 charity with no funds being used for administrative costs, including food, set ups, etc.
+4. As the hostess, you are responsible for the table settings if needed (ables, chairs, etc.).
+
+5. Jenny's Table accepts no money. **ALL** of the donations will go directly to your chosen 501(c)3 charity with no funds being used for administrative costs, including food, set ups, etc. All checks must be written out to your charity of choice.  
 
 ## What we do for you:
 
-1. We set up your donation page through your charity of choice.  If there is no page, we will arrange for the monies to go directly to the charity.
+1. We give you the use of our trademarked logo.  
 
-2. We help you with invitations and organizing your event.
+2. We can help set up your donation page through your charity of choice.  If there is no page, we will arrange for the monies to go directly to the charity.
 
-3. We help you keep track of the money raised for your event.
+3. We can help you with invitations and organizing your event.
 
-4. We are here to help make your event a huge success.
+3. We can help you keep track of the money raised for your event.
+
+4. We are here to help make your event a huge success.  Therefore, please use the form below or contact us through our website www.jennystable.org or by email at jennystable2018@gmail.com.  We'll be happy to answer any questions and help in any way we can.  Even if you don't need our help, please send us information about your event, the charity and how much you have raised so we can add your event to the Jenny's Table goal.  
 
 ## About our first event:
 
@@ -64,7 +68,9 @@ The Breast Cancer Research Foundation
 
 Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
 
+We need your help to achieve the Jenny's Table goal of $50,000 this year. 
 
+# *You get together with friends, so why not do it at Jenny's Table!  *
 
 ### Host an event:
 
