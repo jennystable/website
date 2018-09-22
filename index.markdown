@@ -66,7 +66,7 @@ If you would rather write a check, write "for Jenny's Table" on the memo line an
 The Breast Cancer Research Foundation 
 28 West 44th Street, Suite 609, New York, NY 10036
 
-Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>
+Contact us at: <a href="mailto:jennystable2018@gmail.com" style="color: #336699; font-weight: bold;">jennystable2018@gmail.com</a>###
 
 We need your help to achieve the Jenny's Table goal of $50,000 this year. 
 
