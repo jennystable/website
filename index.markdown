@@ -26,9 +26,9 @@ It is our hope that you will work with us through Jenny’s Table to plan an eve
 
 4.  You decide how big or intimate you want your event to be.  (It can be 5 people or 50+ people.  Whatever you decide.)
 
-4. As the hostess, you are responsible for the table settings if needed (ables, chairs, etc.).
+5. As the hostess, you are responsible for the table settings if needed (tables, chairs, etc.).
 
-5. Jenny's Table accepts no money. **ALL** of the donations will go directly to your chosen 501(c)3 charity with no funds being used for administrative costs, including food, set ups, etc. All checks must be written out to your charity of choice.  
+6. Jenny's Table accepts no money. **ALL** of the donations will go directly to your chosen 501(c)3 charity with no funds being used for administrative costs, including food, set ups, etc. All checks must be written out to your charity of choice.  
 
 ## What we do for you:
 
