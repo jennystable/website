@@ -48,16 +48,8 @@ Since the Breast Cancer Research Foundation gives the largest percentage of its 
 
 Jenny's Table has no administrative costs; 100% of the monies raised will go directly to the Breast Cancer Research Foundation.
 
-### Our first event:
+### Our first event was on September 26, 2018, at which time we raised over $15,000 from our very generous donors.  
 
-September 26, 2018 - 12:30pm  
-The Plant Group  
-117 Pond Road  
-Franklin, CT 06245
-
-Enjoy strolling the fields of the largest perennial grower in the Northeast, The Plant Group, with lunch at 1pm.
-
-Minimum donation to attend $50.00
 
 Click on the link below to donate.  
 <a href="https://give.bcrf.org/fundraiser/1550582" style="color: #CD5787; font-weight: bold;">Jenny's Table at Breast Cancer Research Foundation</a>
