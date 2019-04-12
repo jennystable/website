@@ -48,7 +48,7 @@ Since the Breast Cancer Research Foundation gives the largest percentage of its 
 
 Jenny's Table has no administrative costs; 100% of the monies raised will go directly to the Breast Cancer Research Foundation.
 
-### Our first event was on September 26, 2018, at which time we raised over $15,000 from our very generous donors.  
+### Our first event was on September 26, 2018, at which time we raised over $20,000 from our very generous donors.  
 
 
 Click on the link below to donate.  
